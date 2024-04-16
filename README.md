@@ -1,1 +1,1 @@
-Refer to: [text](https://discord.gg/jutrNMpaES)
+Refer to: https://discord.gg/jutrNMpaES
